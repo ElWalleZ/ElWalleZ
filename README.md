@@ -1,5 +1,4 @@
-## Hi there 👋
-
+![tumblr_0118b92cd45c791f06ca2766314a09e4_db9f9c05_540](https://github.com/user-attachments/assets/627c0e86-eca2-4d27-a3ff-a0eec1719f4b)
 <!--
 **ElWalleZ/ElWalleZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
